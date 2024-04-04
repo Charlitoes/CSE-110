@@ -1,2 +1,2 @@
-#Charlie Trinh's User Page
+# **Charlie Trinh's User Page**
 
